@@ -52,7 +52,11 @@ At the August 25 meeting, Commissioner Cole stated the following. (All quotes we
 
 > I am telling you now this was not me. In fact, I argued against this the entire time that this was being debated. So no, this was not the borough commissioners. I want nothing to do with this.
 
+---
+
 > I can tell from having observed the process in which this ordinance came to be. It is not rooted in research. It is not rooted in data or stats. It is not rooted in any moral code. So what does that leave behind? Political ideology? I don't know. But I can tell you what it is not rooted in.
+
+---
 
 > I've heard two approaches. Approach 1: Send the police let the police deal with this. This ordinance essentially will make sleeping outside a municipal level crime, which means our police will have to deal with it. But if you ask anyone who has done any research on this or has studied it, that does not work.
 >
@@ -63,6 +67,8 @@ At the August 25 meeting, Commissioner Cole stated the following. (All quotes we
 > The other approach is a tried a proven approach. By the way the criminalization has been what we've been doing for decades and doesn't work. The other tried and proven approach, is meet people in their moment of need. Don't send a police officer with a gun, send a social worker, send a specialist who actually is trained in this, and can meet that person, build a relationship, build trust, earn that relationship and eventually lead them to stable housing with the wrap around services that will keep them stably housed. 
 >
 > Do we want to send our police in, who get two modules every two years on training on this? Or do we send specially trained mental health specialists maybe in partnership with the police, so that it is actually dealt with in an effective way? I think if we go about it this way, people are going to end up in a position that is worse than anything else.
+
+---
 
 > I reached out to the county social services team, I reached out to the state social services team. I reached out to neighboring municipalities to talk about this and whether or not we can do any direct service program. I spoke to our faith leaders. In fact I spoke to a representative from the council of churches. I also spoke to nonprofits. I sat in on workshops. I put in a lot of hours to this. I feel quite well informed on what will work and what will not work. 
 > 
