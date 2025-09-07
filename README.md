@@ -1,5 +1,3 @@
-# Haddonfield Residents for Fair & Effective Housing Solutions
-
 This is an informational webpage maintained by the Haddonfield Residents for Fair & Effective Housing Solutions.
 
 ## The Public Comment Period — Official Video
