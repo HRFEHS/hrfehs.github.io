@@ -1,1 +1,1 @@
-# hrfehs.github.io
+# Haddonfield Residents for Fair & Effective Housing Solutions
