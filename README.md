@@ -10,7 +10,7 @@ Despite overwhelming rejection by Haddonfield residents and warnings from expert
 
 If you would like to read Matt Skoufalos's article in NJPen, it can be found [here](https://www.njpen.com/haddonfield-advances-anti-homelessness-ordinance-over-objections-of-packed-forum/).
 
-If you would like to reach Inquirer's reporting on the ordinance, it can be found [here](https://www.inquirer.com/crime/haddonfield-homeless-outdoor-sleeping-ban-20250827.html).
+If you would like to read Inquirer's reporting on the ordinance, it can be found [here](https://www.inquirer.com/crime/haddonfield-homeless-outdoor-sleeping-ban-20250827.html).
 
 ## A Bad Look for Haddonfield
 
