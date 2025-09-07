@@ -1,1 +1,1 @@
-# Haddonfield Residents for Fair & Effective Housing Solutions
+Informational webpage provided by HRFEHS
