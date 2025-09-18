@@ -10,7 +10,7 @@ Despite overwhelming rejection by Haddonfield residents and warnings from expert
 
 If you would like to read Matt Skoufalos's article in NJPen, it can be found [here](https://www.njpen.com/haddonfield-advances-anti-homelessness-ordinance-over-objections-of-packed-forum/).
 
-If you would like to read Inquirer's reporting on the ordinance, it can be found [here](https://www.inquirer.com/crime/haddonfield-homeless-outdoor-sleeping-ban-20250827.html).
+If you would like to read The Inquirer's reporting on the ordinance, it can be found [here](https://www.inquirer.com/crime/haddonfield-homeless-outdoor-sleeping-ban-20250827.html).
 
 ## A Bad Look for Haddonfield
 
@@ -50,7 +50,7 @@ The entire debacle resulted in a black eye for the town. Why are Mayor Siedell a
 
 Despite a five hour public comment period wherein 25 Haddonfield residents opposed the law, 20 of our non-resident neighbors also opposed the law, and only 3 Haddonfield residents supported the law, Mayor Siedell and Commissioner Troy voted the amendments forward. 
 
-At the August 25 meeting, Commissioner Cole stated the following. (All quotes were pulled from the official recording of the August 25 Commissioners' Meeting by a human transcriber; no AI was used in the creation of this information page.)
+At the August 25 meeting, Commissioner Cole stated the following.
 
 > I am telling you now this was not me. In fact, I argued against this the entire time that this was being debated. So no, this was not the borough commissioners. I want nothing to do with this.
 
@@ -75,5 +75,8 @@ At the August 25 meeting, Commissioner Cole stated the following. (All quotes we
 > I reached out to the county social services team, I reached out to the state social services team. I reached out to neighboring municipalities to talk about this and whether or not we can do any direct service program. I spoke to our faith leaders. In fact I spoke to a representative from the council of churches. I also spoke to nonprofits. I sat in on workshops. I put in a lot of hours to this. I feel quite well informed on what will work and what will not work. 
 > 
 > A social worker that is a town resource would be an incredible way to solve this and it would be Haddonfield being a leader. And we don't even have to hire the person. Our council of churches have offered-- and they pooled the money themselves --- have offered to hire --- and we would just have to support them. And maybe help subsidize and help find an office space for that person downtown. Let them build a relationship, keep track of the folks who we need to find housing for.
+>
+---
+(All quotes were pulled from the official recording of the August 25 Commissioners' Meeting by a human transcriber; no AI was used in the creation of this information page.)
 
 > Selective enforcement is going to be a huge problem. You're leaving interpreting this ordinance to the police officer who is responding to the situation. Selective enforcement means discrimination. That is a lawsuit.
