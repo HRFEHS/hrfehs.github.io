@@ -66,7 +66,7 @@ At the August 25 meeting, Commissioner Cole stated the following.
 >
 > Jail is not stable housing so they're going to end up back right on the street. We haven't solved anything. And we pay the county for that.
 >
-> The other approach is a tried a proven approach. By the way the criminalization has been what we've been doing for decades and doesn't work. The other tried and proven approach, is meet people in their moment of need. Don't send a police officer with a gun, send a social worker, send a specialist who actually is trained in this, and can meet that person, build a relationship, build trust, earn that relationship and eventually lead them to stable housing with the wrap around services that will keep them stably housed. 
+> The other approach is a tried a proven approach. By the way, the criminalization has been what we've been doing for decades and doesn't work. The other tried and proven approach, is meet people in their moment of need. Don't send a police officer with a gun, send a social worker, send a specialist who actually is trained in this, and can meet that person, build a relationship, build trust, earn that relationship and eventually lead them to stable housing with the wrap around services that will keep them stably housed. 
 >
 > Do we want to send our police in, who get two modules every two years on training on this? Or do we send specially trained mental health specialists maybe in partnership with the police, so that it is actually dealt with in an effective way? I think if we go about it this way, people are going to end up in a position that is worse than anything else.
 
@@ -77,6 +77,7 @@ At the August 25 meeting, Commissioner Cole stated the following.
 > A social worker that is a town resource would be an incredible way to solve this and it would be Haddonfield being a leader. And we don't even have to hire the person. Our council of churches have offered-- and they pooled the money themselves --- have offered to hire --- and we would just have to support them. And maybe help subsidize and help find an office space for that person downtown. Let them build a relationship, keep track of the folks who we need to find housing for.
 >
 ---
-(All quotes were pulled from the official recording of the August 25 Commissioners' Meeting by a human transcriber; no AI was used in the creation of this information page.)
 
 > Selective enforcement is going to be a huge problem. You're leaving interpreting this ordinance to the police officer who is responding to the situation. Selective enforcement means discrimination. That is a lawsuit.
+
+(All quotes were pulled from the official recording of the August 25 Commissioners' Meeting by a human transcriber; no AI was used in the creation of this information page.)
